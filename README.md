@@ -4,7 +4,7 @@ Hermès 2026
 
 Venture Beyond - Вайти За Пределы,
 
-L'appel du large - Зов 
+L'appel du large - Тяга К Приключениям.
 
 ![photo_2026-02-25_12-30-33](https://github.com/user-attachments/assets/599ed280-c79d-4484-b57c-9d73ae655cee)
 

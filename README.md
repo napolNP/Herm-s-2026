@@ -32,7 +32,7 @@ L'appel du large - Тяга К Приключениям.
 
 ![4](https://github.com/user-attachments/assets/839131ac-2a4c-4d31-84d0-c46bbd140461)
 
-![5](https://github.com/user-attachments/assets/d71c6360-b105-4c01-887a-cfe78184c71d)
+![5](https://github.com/user-attachments/assets/954975f2-c211-41a7-9c2b-c50b034b42ea)
 
 ![6](https://github.com/user-attachments/assets/a99dd218-4312-45cb-8e6d-4da0f646a276)
 

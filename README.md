@@ -32,9 +32,9 @@ L'appel du large - Тяга К Приключениям.
 
 ![4](https://github.com/user-attachments/assets/839131ac-2a4c-4d31-84d0-c46bbd140461)
 
-![5](https://github.com/user-attachments/assets/711c2206-7c2b-4f43-911d-a630f85021a4)
+![5](https://github.com/user-attachments/assets/d71c6360-b105-4c01-887a-cfe78184c71d)
 
-![6](https://github.com/user-attachments/assets/0f69f30e-be9b-41ac-908e-59371780f22f)
+![6](https://github.com/user-attachments/assets/a99dd218-4312-45cb-8e6d-4da0f646a276)
 
 Новые сумки 2026 года.
 

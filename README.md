@@ -23,3 +23,13 @@ L'appel du large - Зов
 ![photo_2026-02-25_12-53-47](https://github.com/user-attachments/assets/d754d87e-0de4-478f-8fbc-92f95bca14fc)
 
 В начале января Hermes обновил цены. В зависимости от модели и материала, в среднем, повышение составило от 1,5% до 13%. 
+
+![1](https://github.com/user-attachments/assets/7f765110-12ab-452c-a27b-1fe9b156a42e)
+
+![2](https://github.com/user-attachments/assets/40cebd11-47ba-485a-a6d5-572b88bb9096)
+
+![3](https://github.com/user-attachments/assets/9756e3f9-fca5-45e8-8541-1e5a061331dd)
+
+![4](https://github.com/user-attachments/assets/839131ac-2a4c-4d31-84d0-c46bbd140461)
+
+![5](https://github.com/user-attachments/assets/711c2206-7c2b-4f43-911d-a630f85021a4)
